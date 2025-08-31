@@ -3,7 +3,7 @@
 (FOR PONYTOWN ONLY) </p>
 <br> </br>
 <p align="center">
-Hello, my names coraline, im usually around my boyfriend and pretty aloof.
+Hello, my names coraline, im usually around my friends and pretty aloof.
 <br>
 but ur free to talk to me, if you want to know more, head to my neocities.
 <br> </br>
