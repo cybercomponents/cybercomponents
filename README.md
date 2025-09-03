@@ -11,5 +11,5 @@ along with that, put something on  my guestbook :)
 <br>
 i like reading messages of any tone. <sub> (yes even if u tell me to kms)</sub>
 <br> </br>
-also i dont have a dni but if ur an annoying proshipper or a regretevator fan i hate you (ESPECIALLY KASPER DIE DIE DIE DIE)   </strong>
+also i dont have a dni but if ur an annoying in my view i hate you (ESPECIALLY KASPER DIE DIE DIE DIE)   </strong>
 </p>
