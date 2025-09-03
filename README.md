@@ -9,5 +9,7 @@ anyones free to talk to me, whisperings the best if im not engaging in anyting a
 <br> </br>
 along with that, put something on  my guestbook :) 
 <br>
-i like reading messages of any tone. <sub> (yes even if u tell me to kms)</sub>   </strong>
+i like reading messages of any tone. <sub> (yes even if u tell me to kms)</sub>
+<br>
+also i dont have a dni but if ur an annoying proshipper or a regretevator fan i hate you   </strong>
 </p>
